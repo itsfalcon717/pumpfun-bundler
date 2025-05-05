@@ -17,7 +17,6 @@ If you have any question or something, feel free to reach out me anytime via tel
 <br>
 #### 🌹You're always welcome🌹
 
-Telegram: [@i3_sol](https://t.me/i3-sol) <br>
 
 
 ## 👀Usage
